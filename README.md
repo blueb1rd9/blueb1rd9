@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @blueb1rd9, but you can call me Jay.
+- 📫 How to reach me jmw28052@gmail.com, w1nscer07@gmail.com, destiel07@aol.com
